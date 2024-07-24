@@ -4,7 +4,7 @@
 -  [squirtle]https://i.pinimg.com/474x/50/3f/bc/503fbc9f5c14991b6b7c16ca52ba3570.jpg
 - 📫 Para entrar em contato comigo é pelo email pereira.padilha.matheus@escola.pr.gov.br
 - 😄 Ele/Dele
-- ⚡ Gosto de jogos elêtronicos :griming:
+- ⚡ Gosto de jogos elêtronicos [yoshi]https://media.tenor.com/PxGl9TxX5O0AAAAM/yoshi-tv-yoshi-bailando.gif
 
 <!---
 MatheusPereira1203/MatheusPereira1203 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
