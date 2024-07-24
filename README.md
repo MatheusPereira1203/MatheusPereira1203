@@ -1,7 +1,7 @@
 - 👋 **Olá,eu sou @MatheusPereira1203**
 - 👀 Eu estou interessado em aprender páginas na web.
 - 🌱 Estou aprendendo a mexer melhor com as páginas na web.
--  ! [squirtle]https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F845128686328240628%2F&psig=AOvVaw0F_PKbhorrc4dR0e3EdVBp&ust=1721928261256000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMDh8-SYwIcDFQAAAAAdAAAAABAE
+-  [squirtle]https://i.pinimg.com/474x/50/3f/bc/503fbc9f5c14991b6b7c16ca52ba3570.jpg
 - 📫 Para entrar em contato comigo é pelo email pereira.padilha.matheus@escola.pr.gov.br
 - 😄 Ele/Dele
 - ⚡ Gosto de jogos elêtronicos :griming:
