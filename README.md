@@ -5,7 +5,7 @@
 - 😄 Ele/Dele
 - ⚡ Gosto de jogos elêtronicos
 
-- ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://media.tenor.com/PxGl9TxX5O0AAAAM/yoshi-tv-yoshi-bailando.gif) ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://static1-br.millenium.gg/articles/4/10/97/4/@/129404-imagem-2022-07-22-192102619-article_m-1.png)
+- ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSz7AYxW2FBHHCvWWc5DqGEWHlv__nK7U55cNUKo5XIdn1aV6qhUgG50NGeQv-T7qLVkJs&usqp=CAU) ![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of an Octocat smiling and raising a tentacle.](https://media.tenor.com/PxGl9TxX5O0AAAAM/yoshi-tv-yoshi-bailando.gif) 
 
 
 
